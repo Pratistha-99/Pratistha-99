@@ -20,4 +20,5 @@ My experience working across analytics, product ownership, and user-centric prob
 Email: prtsthapa99@gmail.com
 
 😄 Pronouns: She/Her
+
 ⚡ Fun fact: I’m naturally drawn to anything blue or water-related — oceans, waves, skies, even blue phone wallpapers. Maybe it’s the calmness… or maybe it’s just the Pisces energy. 💙🌊♓
