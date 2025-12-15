@@ -22,7 +22,7 @@ Why I’m transitioning from Business/Fintech to full-time Data roles
 My experience working across analytics, product ownership, and user-centric problem solving
 
 📫 How to reach me
-Email: prtsthapa99@gmail.com
+Email: thepratisthathapa@gmail.com
 
 😄 Pronouns: She/Her
 
